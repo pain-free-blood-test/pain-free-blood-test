@@ -1,16 +1,29 @@
-## Hi there 👋
+Home Blood Test Service in Delhi-NCR
+Getting a blood test in Delhi-NCR has now become easier and more comfortable. We provide convenient home sample collection services—featuring a painless experience—across Noida, Ghaziabad, Gurgaon, and Faridabad.
+Why Choose Us?
+Painless blood testing at home is now available across Delhi-NCR. If you face difficulties visiting a hospital or laboratory, you can conveniently book your painless blood test from the comfort of your home. Our laboratory provides 24/7 at-home painless blood testing services throughout Delhi-NCR. We employ a professional team of phlebotomists—specialists who visit your residence to collect blood samples in a smooth and hygienic manner. We offer at-home blood testing services across the entire Delhi-NCR region at the most affordable rates.
 
-<!--
-**pain-free-blood-test/pain-free-blood-test** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+100% Safe & Hygienic
+Affordable Health Checkups
+Online Booking Facility Available
+Certified & Trained Phlebotomists
+Fast Reports (Online & Offline)
+Painless Blood Tests
+Our Services
+Full Body Health Checkup
+Diabetes & Thyroid Tests
+CBC & Vitamin Tests
+Lipid Profile
+Cardiac Health Tests
+Home Blood Sample Collection
 
-Here are some ideas to get you started:
+You no longer need to visit a diagnostic center; you can book a blood test from the comfort of your home.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+A trained phlebotomist visits your home to collect blood samples in a safe and hygienic manner. After thorough testing, accurate reports are prepared and sent to patients via WhatsApp or email.
+
+Contact & Booking
+
+Visit our website for home sample collection or home blood test services.
+
+https://painfreebloodtest.com/
+
